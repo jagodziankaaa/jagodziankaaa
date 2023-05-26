@@ -1,6 +1,6 @@
-Hi there! I'm jagodziankaaa 
-I live in poland 
-I'm an otaku (❤❤❤ Kakegurui and Horimiya ❤❤❤)
+Hi there! I'm jagodziankaaa, 
+I live in poland, 
+I'm an otaku (❤❤❤ Kakegurui and Horimiya ❤❤❤),
 Im nowhere
 
 Discord:
